@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Jhonata Wallace 😁
+## Bem-vindo(a) ao perfil do Jhonata Wallace 
 
 <div>
    <a href="https://github.com/JhonataWallace">
